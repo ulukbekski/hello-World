@@ -3,5 +3,5 @@ just another reposiyory
 
 Hi mans!
 Today  I've started using Github!
-I want to be RICHHH!
-I will be th best!
+I want famous programmer so,
+I will try my best!
